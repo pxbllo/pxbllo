@@ -2,7 +2,7 @@
 
 **`CRAFTMAN`💡**
 
-Eu me chamo Pablo, sou criador no mundo físico e no digital.
+Eu me chamo Pablo, sou criador no mundo físico e digital, onde as possibilidades não têm limites.
 
 
 <p aligh="center">
